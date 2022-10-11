@@ -1,0 +1,1 @@
+scipts and their meanings 
